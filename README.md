@@ -20,3 +20,6 @@ our ideology:               જ⁀➴ ♡
 - islamophobia isn't real  ৎ°․
 
 find us on Instagram @bsqueries
+
+⋆ ° ꩜.ᐟ  coming soon...  ⋆.˚⋆
+
