@@ -18,3 +18,5 @@ our ideology:               જ⁀➴ ♡
 - ai is the future  .ᐟ
 - war is always wrong  ᯓ★
 - islamophobia isn't real  ৎ°․
+
+find us on Instagram @bsqueries
