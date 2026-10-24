@@ -14,10 +14,9 @@ about:
 our ideology:               જ⁀➴ ♡
 
 - privacy is a human right
-- religion is a tool made by men in order to control the masses
+- religion is a tool made by men in order to control the masses   ৎ°․
 - ai is the future  .ᐟ
 - war is always wrong  ᯓ★
-- islamophobia isn't real  ৎ°․
 
 find us on Instagram @bsqueries
 
