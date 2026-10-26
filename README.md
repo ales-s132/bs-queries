@@ -18,7 +18,7 @@ our ideology:               જ⁀➴ ♡
 - ai is the future  .ᐟ
 - war is always wrong  ᯓ★
 
-find us on Instagram @bsqueries
+find us on Instagram and Tiktok @bsqueries
 
 ⋆ ° ꩜.ᐟ  coming soon...  ⋆.˚⋆
 
